@@ -1,3 +1,3 @@
 # VCDay2
 This is a lab Day 2 solution
-[programmin](https://share.google/images/eQLLgSbfL9qO6KJ2C)
+[programmin](./istockphoto-537331500-612x612.jpg)
